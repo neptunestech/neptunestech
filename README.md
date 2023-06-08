@@ -33,4 +33,4 @@ If you have a project idea or want to discuss how Neptunes Tech can help your bu
 
 - Website: [https://neptunes-tech.web.app](https://neptunes-tech.web.app/)
 - Email: neptunestech876@gmail.com
-- Address: Shaheed-e-Millat Rd, BMCHS Sharafabad, Karachi, Pakistan
+- Address: Karachi, Pakistan
