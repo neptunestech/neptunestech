@@ -31,6 +31,7 @@ At Neptunes Tech, we believe in a collaborative and agile approach to software d
 
 If you have a project idea or want to discuss how Neptunes Tech can help your business, feel free to reach out to us.
 
-- Website: [https://neptunes-tech.web.app](https://neptunes-tech.web.app/)
+- Website: [https://neptunestech.com](https://neptunestech.com)
 - Email: neptunestech876@gmail.com
+- Fiver: [https://www.fiverr.com/mansoorh876](https://www.fiverr.com/mansoorh876)
 - Address: Karachi, Pakistan
